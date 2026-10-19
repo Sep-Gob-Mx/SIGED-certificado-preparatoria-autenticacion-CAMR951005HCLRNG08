@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CAMR951005HCLRNG08
+CAMR951005HCLRNG08
